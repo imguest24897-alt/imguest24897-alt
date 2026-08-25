@@ -1,1 +1,1 @@
-just a some random guy on the internet who likes custom roms (android roms, router custom roms, etc), development, and etc
+its probably time to start over.
